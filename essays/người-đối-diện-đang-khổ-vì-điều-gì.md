@@ -4,7 +4,8 @@ Khi ta tiếp xúc với một người, chúng ta thường có ngay những 
 
 Chính vì như thế, ta thường không thấy được điều mà ta không muốn thấy, không nghe được những điều ta không muốn nghe vì ta đã được sàng lọc sẵn. Như vậy thì làm thế nào để thay đổi? Gần đây tôi tìm ra một cách, đó là mỗi khi nói chuyện với ai, tôi thường nghĩ tới việc `họ đang có nổi khổ gì`, từ đó khiến tôi suy nghĩ chậm lại một tý và cảm thông thêm một tý. 
 
-[Imgur](https://imgur.com/RpbCz4q)
+![suffer](https://i.imgur.com/RpbCz4q.jpg)
+
 
 ## Tại sao bắt đầu tư nổi khổ? 
 
