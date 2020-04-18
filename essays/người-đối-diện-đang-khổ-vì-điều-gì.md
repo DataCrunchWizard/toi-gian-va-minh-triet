@@ -11,3 +11,7 @@ Vì đó chính là gốc rể cuối cùng của tất cả mọi viê
 Và chính cái khổ tạo ra động lực cho tất cả mọi thứ, trừ khi tất cả chúng ta đi tu, sống như một thầy tu đúng nghĩa, ngừng kết hôn và loài người tuyệt chủng. Hay nhìn ở một góc nhìn khác, ta không hiểu được người đối diện nếu ta không cảm nhận được họ đang khổ vì điều gì. Khi để tâm, cảm nhận được điều đó thì ta mới thực sự lắng nghe, mà thực sự lắng nghe thì mới là bước đầu tiên của giao tiếp một cách chân thành. 
 
 Suy cho cùng, nếu ta không muốn giao tiếp một cách chân thành, giúp đỡ, nhận giúp đỡ, hoặc sẻ chia với người ta đang nói chuyện thì chúng ta cũng đâu cần phải giao tiếp. Vì nó có khả năng rất cao trở nên sáo rổng vô vị. 
+
+Thế nên, giống như tập thiền, khi ta bắt đầu suy nghĩ một cách nhanh, vội và dựng sẵn định kiến, thì chúng ta lại phải nhớ và kéo mình lại, và đặt câu hỏi: người ta đang nói chuyện có nổi khổ gì? 
+
+## Ta không phải là thần thánh để cứu rổi, đây chỉ là một cách sống tốt hơn 
