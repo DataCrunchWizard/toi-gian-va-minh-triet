@@ -27,3 +27,5 @@ Có thể ta không thể là giúp đỡ, hoặc cũng không có nhu 
 > Hơn chục shipper "ngậm đắng nuốt cay" vì bị "bom" hàng rất khó hiểu tại một địa chỉ - [nguồn](https://kenh14.vn/hon-chuc-shipper-ngam-dang-nuot-cay-vi-bi-bom-hang-rat-kho-hieu-tai-mot-dia-chi-20200418202550641.chn)
 
 Ai trong mỗi chúng ta điều có những sai lầm vì những sự thiếu cảm thông của mình đối với người khác. Ai cũng ít nhất giận cha mẹ vì một điều gì đó mà thực sự đó cũng là điều cha mẹ muốn tốt cho ta. Ai cũng có những buồn phiền, những nổi khổ riêng và việc cố gắng hơn một tý để hiểu người khác, cũng chính là một cách để hiểu chính mình hơn. 
+
+Vì biết đâu rằng ta cũng không nhận ra những nổi khổ của mình khi không cố gắng nhìn vào nổi khổ của người ta. Lần tiếp theo khi ta muốn có một bộ đồ đẹp hay một chiếc xe xịn, ta cũng có thể nghĩ rằng ta đang phải đối mặt với một sự đau khổ của chính bản thân mình, mong muốn có cái mà ta không/chưa có hoặc phải trả giá bằng nhiều thời gian, công sức để có được
