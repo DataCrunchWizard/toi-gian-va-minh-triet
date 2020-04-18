@@ -19,3 +19,9 @@ Suy cho cùng, nếu ta không muốn giao tiếp một cách chân thàn
 Thế nên, giống như tập thiền, khi ta bắt đầu suy nghĩ một cách nhanh, vội và dựng sẵn định kiến, thì chúng ta lại phải nhớ và kéo mình lại, và đặt câu hỏi: người ta đang nói chuyện có nổi khổ gì? 
 
 ## Đây chỉ là một cách sống tốt hơn, không phải để trở nên thần thánh cứu rỗi 
+
+Khi cảm nhận được nổi khổ của người khác, ta mới dần điều tiết được lời nói và hành động của chính mình. Thường thì ta sẽ thấy hình ảnh chính bản thân ta trong nổi khổ của người khác. Ví dụ: nếu gặp một người nghèo khó, cảm nhận được nổi khổ của họ thì ta cũng thấy chính ta trong những lúc khó khăn . Từ đó lại trân trọng cái chúng ta đang có và sống trọn vẹn hơn. 
+
+Có thể ta không thể là giúp đỡ, hoặc cũng không có nhu cầu giúp đỡ, nhưng khi cảm nhận nổi khổ của mọi người, ta cũng ít có những lời nói hay hành động làm tổn thương hoặc khiến mọi thứ tệ hơn nữa. Đây là một mẫu tin rất thời sự ngày hôm nay:
+
+> Hơn chục shipper "ngậm đắng nuốt cay" vì bị "bom" hàng rất khó hiểu tại một địa chỉ - [nguồn](https://kenh14.vn/hon-chuc-shipper-ngam-dang-nuot-cay-vi-bi-bom-hang-rat-kho-hieu-tai-mot-dia-chi-20200418202550641.chn)
