@@ -28,4 +28,9 @@ Có thể ta không thể là giúp đỡ, hoặc cũng không có nhu 
 
 Ai trong mỗi chúng ta điều có những sai lầm vì những sự thiếu cảm thông của mình đối với người khác. Ai cũng ít nhất giận cha mẹ vì một điều gì đó mà thực sự đó cũng là điều cha mẹ muốn tốt cho ta. Ai cũng có những buồn phiền, những nổi khổ riêng và việc cố gắng hơn một tý để hiểu người khác, cũng chính là một cách để hiểu chính mình hơn. 
 
-Vì biết đâu rằng ta cũng không nhận ra những nổi khổ của mình khi không cố gắng nhìn vào nổi khổ của người ta. Lần tiếp theo khi ta muốn có một bộ đồ đẹp hay một chiếc xe xịn, ta cũng có thể nghĩ rằng ta đang phải đối mặt với một sự đau khổ của chính bản thân mình, mong muốn có cái mà ta không/chưa có hoặc phải trả giá bằng nhiều thời gian, công sức để có được
+Vì biết đâu rằng ta cũng không nhận ra những nổi khổ của mình khi không cố gắng nhìn vào nổi khổ của người khác. Lần tiếp theo khi ta muốn có một bộ đồ đẹp hay một chiếc xe xịn, ta cũng có thể nghĩ rằng ta đang phải đối mặt với một sự đau khổ của chính bản thân mình, mong muốn có cái mà ta không/chưa có hoặc phải trả giá bằng nhiều thời gian, công sức để có được
+
+
+Khi ta thấy mình có những nổi khổ, những mong muốn không đạt được, cũng là lúc ta nhận ra (giác ngộ?) rằng có thể rằng ta không cần món đồ đó, hoặc ta không cần có điều này, điều kia. Không phải là bõ qua tất cả mọi thứ, mà là để dành thời gian, năng lượng cho những người quan trọng nhất, những việc có giá trị hay ý nghĩa hơn. 
+
+Đó cũng là một cách để sống tốt hơn, đơn giản và có thể là tối giản hơn. 
