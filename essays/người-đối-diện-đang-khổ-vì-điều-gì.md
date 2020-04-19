@@ -8,7 +8,7 @@ Chính vì như thế, ta thường không thấy được điều mà t
 > Sống là đau khổ, sống sót là tìm được ý nghĩa trong đau khổ -  Friedrich Nietzsche.
 
 
-## Tại sao bắt đầu tư nổi khổ? 
+## Tại sao bắt đầu từ nỗi khổ? 
 
 Vì đó chính là gốc rể cuối cùng của tất cả mọi việc. Khổ chính là một trong [bốn gốc cơ bản](https://vi.wikipedia.org/wiki/T%E1%BB%A9_di%E1%BB%87u_%C4%91%E1%BA%BF) của Phật Giáo. Ngay từ trước khi ra đời, ta là một thai nhi trong bụng mẹ và trong bụng mẹ suốt 9 tháng không hệ là một việc dễ dàng, đơn giản. Khi ta ra đời, bắt đầu cảm nhận cái đói, cái sợ... là những điều chúng ta không ưa thích, đó cũng là nổi khổ. Là một đứa trẻ khi đi học, ta cũng bắt đầu nhận thấy vô vàn những nổi khổ khác, ví dụ tại sao điểm không cao? tại sao không được điều này, không có cái kia? Rồi đến khi trưởng thành, ta là gặp nhiều nổi khổ lớn hơn, tại sao lại thất tình? tại sao không có nhiều tiền như người khác? tại sao không được ngưỡng mộ, nổi tiếng, nhiều like? tại sao phải làm việc? tại sao lại có cơ thể lại có những điểm xấu xí không vừa lòng? ... Khi có con, ta lại gặp nổi khổ sao khó dạy dỗ? sao con mình không giỏi như con người ta? làm sao để có tiền cho con ăn học? ...  Dường như chúng ta không bao giờ thoát được cái khổ cho đến khi ta rời xa cuộc sống này. 
 
