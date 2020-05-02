@@ -1,4 +1,4 @@
-#Ghi chú về đơn giản hoá cuộc sống
+# Ghi chú về đơn giản hoá cuộc sống
 
 Đây là file ghi chú lại những điều chỉnh trong cuộc sống để đơn giản hơn. 
 
