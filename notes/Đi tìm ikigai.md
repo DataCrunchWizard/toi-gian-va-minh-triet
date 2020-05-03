@@ -14,6 +14,7 @@ Trong mỗi chúng ta đều có một Ikigai ẩn. Chỉ khi khám phá ra chú
  Bạn làm tốt ở lĩnh vực nào? 
  Xã hội cần cái gì nhất (từ bạn)? 
  Bạn kiếm được tiền từ việc gì?
+ 
 Tìm ra câu trả lời và sự cân bằng giữa bốn lĩnh vực này chính là cách để tìm thấy ikigai đối với một người phương Tây tìm kiếm một lời giải thích nhanh chóng cho triết lý này. Nhưng ở Nhật Bản, Ikigai là một quá trình chậm rãi và chẳng có liên quan gì đến công việc hay thu nhập.  
 
 
@@ -40,6 +41,7 @@ Bạn có thể trả lời mấy câu hỏi đó nhờ các đường tròn min
 
 Nhiều thiên tài biết đến ikigai và khuyên lớp trẻ phải bằng mọi cách tìm ra nó, đặc biệt là Steve Jobs! “Công việc chiếm phần rất lớn cuộc sống của bạn và cách duy nhất hài lòng hoàn toàn với nó-làm những gì chính bạn coi là vĩ đại. Và cách duy nhất làm những điều vĩ đại-hãy yêu cái việc các bạn làm!" ([nguồn](https://www.ohay.tv/view/hot-trend-ikigai-la-gi-tai-sao-nguoi-nhat-dung-ikigai-de-hanh-phuc-va-truong-tho-hon/59ba23086d))
 
+---
 
 ![Sách](https://i.imgur.com/xrJn84s.jpg)
 
@@ -54,3 +56,25 @@ Một số lời khuyên tác giả  đưa ra nhằm giúp mỗi người tìm �
 8. Lòng biết ơn là cuội nguồn của một cuộc đời hạnh phúc
 9. Sống trong phút giây hiện tại, đừng nuối tiếc quá khứ hay lo sợ về tương lai. Chỉ ngày hôm nay là có thật.
 10. Theo đuổi đam mê - ikigai của mình. Ikigai luôn có sẵn trong mỗi người. Bạn không cần tạo ra nó, bạn chỉ cần đủ kiên trì để khám phá và nuôi dưỡng nó. ([nguồn](https://www.facebook.com/photo.php?fbid=2532918043693719&set=p.2532918043693719&type=1&theater))
+
+---
+# Làm thế nào để áp dụng Ikigai vào cuộc sống?
+## Bắt đầu bằng những điều nhỏ nhặt nhất
+Những công việc hằng ngày bạn hãy làm cẩn thận với tinh thần biết ơn vì cuộc sống đã cho ta thêm một ngày khác với ngày hôm qua.
+
+## Buông bỏ dần những thói quen xấu
+Buông bỏ những tiểu tiết và tự ti về ngoại hình và nhìn thấy những điều quan trọng với bạn bên trong một cách tích cực hơn Một trong những những nhiệm vụ khó khăn nhất mà chúng ta phải đối mặt trong cuộc sống là sống từng giây phút trong thực taị, trải nghiệm những thứ sống động nhất xung quanh bạn.
+
+## Giữ nguyên cá tính riêng nhưng hoà nhập cùng với những người xung quanh
+Mỗi bản thể đều riêng biệt, mang nét cá tính khác nhau nhưng việc duy trì ý thức cộng đồng, sống có tổ chức sẽ đem đến cho bạn sự hỗ trợ mạnh mẽ, đem bạn vượt qua những thời khắc khó khăn với việc đi đến mục tiêu bạn đề ra.
+
+## Kết hợp với chế độ ăn uống lành mạnh và rèn luyện sức khoẻ
+Dựa vào thể trạng và độ tuổi, bạn hãy tìm hiểu và lựa chọn chế độ ăn phù hợp với những thực phẩm tươi ngon, kết hợp với tập thể dục duy trì mỗi ngày. Đây cũng là lí do vì sao Nhật Bản có độ tuổi trung bình cao nhất thế giới.
+
+
+Nhật Bản là đất nước có tuổi thọ cao nhất thế giới
+
+Ikigai không thể đạt được trong một sớm một chiều, và Ikigai không có nghĩa là sẽ mang lại stress cho bạn. Điều nó nhắc nhở bạn là trong cuộc đời mỗi người luôn có nhiều nhu cầu khác nhau để tạo nên một bản thể hoàn chỉnh.
+
+Nhiều thiên tài biết đến Ikigai và khuyên lớp trẻ phải bằng mọi cách tìm ra nó, đặc biệt là Steve Jobs: “Công việc chiếm phần rất lớn cuộc sống của bạn và cách duy nhất hài lòng hoàn toàn với nó – làm những gì chính bạn coi là vĩ đại. Và cách duy nhất làm những điều vĩ đại – hãy yêu cái việc các bạn làm!”.  ([nguồn](https://www.brandsvietnam.com/congdong/topic/22840-Ikigai-Bi-quyet-de-co-cuoc-song-hanh-phuc))
+
