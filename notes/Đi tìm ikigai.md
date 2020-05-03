@@ -78,3 +78,12 @@ Ikigai không thể đạt được trong một sớm một chiều, và Ikigai 
 
 Nhiều thiên tài biết đến Ikigai và khuyên lớp trẻ phải bằng mọi cách tìm ra nó, đặc biệt là Steve Jobs: “Công việc chiếm phần rất lớn cuộc sống của bạn và cách duy nhất hài lòng hoàn toàn với nó – làm những gì chính bạn coi là vĩ đại. Và cách duy nhất làm những điều vĩ đại – hãy yêu cái việc các bạn làm!”.  ([nguồn](https://www.brandsvietnam.com/congdong/topic/22840-Ikigai-Bi-quyet-de-co-cuoc-song-hanh-phuc))
 
+
+---
+Đọc thêm: 
+- Tóm tắt sách: https://www.sloww.co/ikigai-book/ 
+- https://www.facebook.com/photo.php?fbid=10214257770265513&set=p.10214257770265513&type=1&theater
+- https://www.facebook.com/namhhn/posts/832502683478337 
+- https://www.facebook.com/photo.php?fbid=3705211846170476&set=p.3705211846170476&type=1&theater
+- https://www.facebook.com/buithanhtam/posts/10215335105435796 
+- https://trithucvn.net/suc-khoe/ikigai-bi-quyet-song-lau-cua-nguoi-nhat-ban.html 
