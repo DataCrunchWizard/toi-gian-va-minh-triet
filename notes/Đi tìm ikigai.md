@@ -40,3 +40,16 @@ Bạn có thể trả lời mấy câu hỏi đó nhờ các đường tròn min
 
 Nhiều thiên tài biết đến ikigai và khuyên lớp trẻ phải bằng mọi cách tìm ra nó, đặc biệt là Steve Jobs! “Công việc chiếm phần rất lớn cuộc sống của bạn và cách duy nhất hài lòng hoàn toàn với nó-làm những gì chính bạn coi là vĩ đại. Và cách duy nhất làm những điều vĩ đại-hãy yêu cái việc các bạn làm!" ([nguồn](https://www.ohay.tv/view/hot-trend-ikigai-la-gi-tai-sao-nguoi-nhat-dung-ikigai-de-hanh-phuc-va-truong-tho-hon/59ba23086d))
 
+
+![Sách](https://i.imgur.com/xrJn84s.jpg)
+Một số lời khuyên tác giả  đưa ra nhằm giúp mỗi người tìm được và duy trì Ikigai của mình, tóm lược như sau:
+1. Hãy sống cuộc đời năng động, đừng bao giờ “nghỉ hưu”
+2. Chậm lại, không có gì là “khẩn cấp” . Nếu bạn biết cách đi chậm, bạn sẽ đi được xa
+3. Không ăn qua no, hãy dừng lại khi dạ dày đã được nạp đến 80%
+4. Bạn tốt là liều thuốc quý, hãy ở bên cạnh những người truyền cho bạn năng lực tích cực và tránh xa những người “độc hại”
+5. Dòng nước chỉ tinh khiết khi nó được chảy trôi, con người chỉ khoẻ mạnh khi có sự vẫn động. Hãy tập thể dục.
+6. Hãy mỉm cười, nụ cười mang đến nhiều cơ hội
+7. Tìm lại sự kết nối với thiên nhiên, để hoà mình và nhận được nguồn năng lượng sống dồi dào bất tận
+8. Lòng biết ơn là cuội nguồn của một cuộc đời hạnh phúc
+9. Sống trong phút giây hiện tại, đừng nuối tiếc quá khứ hay lo sợ về tương lai. Chỉ ngày hôm nay là có thật.
+10. Theo đuổi đam mê - ikigai của mình. Ikigai luôn có sẵn trong mỗi người. Bạn không cần tạo ra nó, bạn chỉ cần đủ kiên trì để khám phá và nuôi dưỡng nó. ([nguồn](https://www.facebook.com/photo.php?fbid=2532918043693719&set=p.2532918043693719&type=1&theater))
