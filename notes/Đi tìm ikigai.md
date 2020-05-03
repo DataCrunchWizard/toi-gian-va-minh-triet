@@ -42,6 +42,7 @@ Nhiều thiên tài biết đến ikigai và khuyên lớp trẻ phải bằng m
 
 
 ![Sách](https://i.imgur.com/xrJn84s.jpg)
+
 Một số lời khuyên tác giả  đưa ra nhằm giúp mỗi người tìm được và duy trì Ikigai của mình, tóm lược như sau:
 1. Hãy sống cuộc đời năng động, đừng bao giờ “nghỉ hưu”
 2. Chậm lại, không có gì là “khẩn cấp” . Nếu bạn biết cách đi chậm, bạn sẽ đi được xa
