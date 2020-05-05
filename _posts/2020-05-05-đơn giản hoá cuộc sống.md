@@ -1,4 +1,11 @@
-# Ghi chú về đơn giản hoá cuộc sống
+---
+layout: post
+title: Ghi chú về đơn giản hoá cuộc sống
+description: Ghi chú về đơn giản hoá cuộc sống
+summary: 
+tags: []
+---
+
 
 Đây là file ghi chú lại những điều chỉnh trong cuộc sống để đơn giản hơn. 
 
