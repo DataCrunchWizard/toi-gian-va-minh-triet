@@ -33,7 +33,7 @@ disqus:
 
 paginate:            1000
 paginate_path:       "/page:num/"
-baseurl:             "/tom-tat-sach"
+baseurl:             "/toi-gian-va-minh-triet"
   
 compress_html:
   clippings: all
@@ -57,12 +57,7 @@ collections:
   posts:
     output: true
     permalink: /:year/:month/:day/:slug
-  projects:
-    output: true
-    permalink: /projects/:slug
-  art:
-    output: true
-    permalink: /art/:slug
+  
   
 defaults:
   -
@@ -82,12 +77,7 @@ defaults:
       type: "posts"
     values:
       layout: "post"
-  -
-    scope:
-      path: ""
-      type: "projects"
-    values:
-      layout: "project"     
+  
       
   - scope:
       path: "assets/images"
