@@ -6,8 +6,8 @@ author:
   email: # your email 
   url: # url
   avatar: 
-title: Gray - Single column blog and portfolio Jekyll theme
-description: Gray - Single column blog and portfolio Jekyll theme
+title: Sống tối giản và minh triết
+description: Sống tối giản và minh triết
 logo: 
 image: 
 twitter: # twitter 
@@ -15,13 +15,7 @@ twitter:
   username: # twitter
   creator: # twitter
   card: summary
-social:
-  name: Ronalds Vilcins
-  links:
-    - https://twitter.com/example
-    - https://www.dribbble.com/example
-    - https://github.com/example
-    - https://codepen.io/example
+
   
 repository: ronv/website
 
