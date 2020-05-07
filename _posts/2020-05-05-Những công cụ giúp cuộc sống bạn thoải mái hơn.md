@@ -43,6 +43,6 @@ tags: []
 
 - Công cụ xây dựng Wiki, tương tự như notion
 
-8. [EtreCheck](http://www.etrecheck.com/)
+8. [EtreCheck](http://www.etrecheck.com/) & MacRapidizer 
 
 - Công cụ giúp sửa những lỗi của Mac khiến máy chạy chậm
