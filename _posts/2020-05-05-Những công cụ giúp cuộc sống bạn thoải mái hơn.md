@@ -46,3 +46,8 @@ tags: []
 ### 8. [EtreCheck](http://www.etrecheck.com/) & MacRapidizer 
 
 - Công cụ giúp sửa những lỗi của Mac khiến máy chạy chậm
+
+
+### 9. [Filestash](https://www.filestash.app/)
+
+- Công cụ quản lý file và backup như Dropbox nhưng có thể sử dụng nhiều backend khác nhau. 
