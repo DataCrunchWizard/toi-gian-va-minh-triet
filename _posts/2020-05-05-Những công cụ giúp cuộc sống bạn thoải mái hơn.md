@@ -42,3 +42,7 @@ tags: []
 7. [Bookstack](https://www.bookstackapp.com/)
 
 - Công cụ xây dựng Wiki, tương tự như notion
+
+8. [EtreCheck](http://www.etrecheck.com/)
+
+- Công cụ giúp sửa những lỗi của Mac khiến máy chạy chậm
